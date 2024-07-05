@@ -6,6 +6,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=aditya16082004&label=Profile%20views&color=0e75b6&style=flat" alt="aditya16082004" /> </p>
 
+- 📫 How to reach me **+91 89850 72530**
 - ⚡ Fun fact **Why did the Sigma refuse to join the math club? Because they prefer to calculate their own path in life!**
 
 <h3 align="left">Connect with me:</h3>
